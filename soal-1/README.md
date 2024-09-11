@@ -1,0 +1,1 @@
+saya terfokus untuk membuat tampilan mobilenya, tampilan desktopnya ada sedikit kekurangan
